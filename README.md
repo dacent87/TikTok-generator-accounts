@@ -5,8 +5,8 @@ TikTok generation accounts, TikTok api, x-gorgon, x-ladon, x-ladon, TikTok priva
 creator accounts tiktok, python, php version, last app.
 
 ### contact me
-## Contact Telegram @dacent53
-https://t.me/dacent53
+## Contact Telegram @dacent87
+https://t.me/dacent87
 
 # tiktokapi
 tiktok x-ladon, tiktok x-argus, tiktok x-gorgon, tiktok x-khronos, tiktok device register, tiktok api
@@ -47,5 +47,5 @@ tiktok x-ladon, tiktok x-argus, tiktok x-gorgon, tiktok x-khronos, tiktok device
 22. create accounts
 
 ### contact me
-## Contact Telegram @dacent53
-https://t.me/dacent53
+## Contact Telegram @dacent87
+https://t.me/dacent87
